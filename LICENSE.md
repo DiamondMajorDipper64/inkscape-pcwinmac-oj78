@@ -1,4 +1,4 @@
-# 
+# Exclusive Inkscape plugins for Mac OS | VIP Inkscape plugins for PC Windows. Featuring master-pages and retouching — optimized for maximum performance on every platform.
 
 
 
